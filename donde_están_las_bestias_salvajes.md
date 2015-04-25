@@ -1,7 +1,7 @@
 
 # Donde están las bestias salvajes
-# De Maurice Sendak
-## (Traducción al español para Laia.)
+De Maurice Sendak
+(Traducción al español para Laia.)
 
 La noche que Max se disfrazó de lobo e hizo necedades aquí
 
