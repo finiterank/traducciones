@@ -20,7 +20,7 @@ Una era muy delicada.
 Una la puso en un pedestal...
 y la dejó ahí.
 
-A algunas les faltaban demasiadas piezas.
+Algunas habían perdido demasiadas piezas.
 
 Y otras tenían demasiadas piezas, punto.
 
